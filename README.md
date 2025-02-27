@@ -1,0 +1,2 @@
+# DAtalar
+Umumiy
